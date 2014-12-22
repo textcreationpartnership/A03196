@@ -37,11 +37,77 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The exemplary lives and memorable acts of nine the most worthy women in the vvorld three Iewes. Thre
+
+1. TO THE HONORABLE AND EMINENTLY VERTVOVS, THE EXcellent Lady THEOPHILA, the Learned Consort of the right worthy Sir ROBERT COOKE, Knight, &c.
+
+1. TO THE EXCELLENTLY DISPOSED MISTRIS ELIZABETH THE VERTVOVS CONSORT OF CLOVILL TANFIELD OF COPT-FOLD HALL, IN ESSEX (Esquire.) The memorable Acts of these nine most worthy Ladies are humbly presented by T. H.
+
+1. TO ALL NOBLE AND BRAVE SPIRITED GENTLEMEN, WITH THE EXCELLENT AND VERTVOVSLY DISPOSED GENTLEWOMEN in generall.
+
+1. TO THE GENERALL READER.
+
+1. To his much respected Friend Mr. Thomas Heywood, concerning his Worke of the Nine Women Worthies.
+
+1. To his learned, loving Friend Mr. Thomas Heywood, upon his History of the Nine Women worthies.
+
+1. To the worthy Reviver of these Nine Women worthies, Master Thomas Heywood, Gent.
+
+1. To his worthy Friend Mr. Thomas Heywood, on his Nine Female Worthies.
+
+1. THE APPELLATION OF THE THREE IEWES.
+
+1. THE APPELLATION OF THE THREE GENTILES
+
+1. THE APPELLATION OF THE THREE CHRISTIANS.
+
 #####Body#####
+DEBORAH.HE that shall take in hand to speake at largeOf womens prayse, shall undergoe a chargeBeyond
+    _ DEBORAH.
+
+    _ OF THE NINE VVORTHIES AMONGST WOMEN;
+Three Iewes,Three Gentiles,Three Christians.
+And first of DEBORAH.
+IVDETHTHe great Assyrian King, puft up with prideBecause no Prince, was able to abideHis potency in 
+    _ IVDETH
+
+    _ OF IVDETH A SECOND WORTHY WOMAN AMONGST THE IEWES.
+
+1. ESTHER
+INstead of Vasthi, a proud insolent Queene,Esther, a captiv'd Virgin is next seeneIn the throne Roya
+    _ OF ESTHER A THIRD WORTHY WOMAN AMONGST THE IEWES.
+
+1. OF THE THREE WORTHIE WOMEN AMONG THE HEATHEN
+
+    _ BVNDVCA
+
+    _ THE FIRST OF THE THREE WOMEN WORTHIES AMONGST THE HEATHEN CALLED BVNDVCA.
+PENTHISILAEA.SOme, in their criticke fancies would maintaine,(As having Womens honour in disdaine.)A
+    _ PENTHISILAEA.
+
+    _ OF PENTHISILAEA THE SECOND FAMOVS CHAMPIONESSE AMONGST THE HEATHEN
+ARTIMESIA.OF this brave Carian Queene, my pen's at strifeWhether, she better Widdow was, or Wife.In 
+    _ ARTIMESIA.
+
+    _ OF ARTIMESIA. QVEENE OF CARIA, A THIRD HEROICK CHAMPIONESSE AMONGST THE HEATHEN
+
+1. OF THE THREE WORTHIE WOMEN AMONG THE CHRISTIANS.
+
+    _ ELPHEDA.
+
+    _ THE FIRST OF THE THREE WOMEN WORTHIES AMONGST THE CHRISTIANS, CALLED ELPHEDA.
+
+    _ QVEENE MARGARET
+
+    _ THE SECOND OF THE THREE WOMEN WORTHIES AMONGST THE CHRISTIANS, CALLED MARGARET QVEENE OF ENGLAND.
+QVEENE ELIZABETH.THis Virgin Soveraigne of our Maiden Isle.On whom blind Fortune did both frowne, an
+    _ QVEENE ELIZABETH.
+
+    _ THE LAST OF THE THREE WOMEN WORTHIES AMONGST THE CHRISTIANS, CALLED ELIZABETH, QVEEN OF ENGLAND, FRANCE, AND IRELAND, &c.
 
 #####Back#####
 
+1. A briefe Index or Table of the Contents in the Premises.
+In the life of DEBORAH.WHat this Deborah was. Page 5.The Etimoligy of her name. p. 6Her Character. iIVDETH.OF the two Kings Nabuchodonozer and Arphaxad. p. 22The two great Cities of Ninivie and EchbatESTHER.WHat Ahashueras was. p. 46His great feast to his Princes. p. 47.His feast to the people. ib.QBONDVCA.HEr severall appellations. 70Prasutagus her husband maketh Caesar Co-keyre with his Queene aPENTHISILAEA.OF Viragoes, or women of masculine Spirit. 96Of Camilla, Helerna, Semiramis, Zenobia. 9ARTIMESIA.HEroicke women in all ages. 112Renowned women. 113The seaven wonders of the world, and firELPHLEDA.OF com•ustions and 〈◊〉 women. 132Helena, Hyppodamia, Aspa•ia, Poli•o, Lavinia. 133DejareiraQueene MARGARET.A Preparation for her mariage. 154Her bringing over into England with her marriage tQueene ELIZABETH.A Character of Queene Elizabeth. 184Her descent. 185Her birth, baptisme; Queene KatExcusing the Compositor, who received this Coppy in a difficult and unacquainted hand, and the Corre
 **Types of content**
 
   * There are 375 **verse** lines!
